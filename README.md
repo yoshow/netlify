@@ -1,1 +1,1 @@
-http://x3platform.com
+visit http://x3platform.com
